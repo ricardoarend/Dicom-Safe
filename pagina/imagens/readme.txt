@@ -1,0 +1,1 @@
+Aqui serão armazenadas as imagens
